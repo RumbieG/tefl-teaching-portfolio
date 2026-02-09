@@ -1,6 +1,6 @@
 # TEFL Teaching Portfolio
 
-Hello! My name is Maureen, and I am a TEFL student preparing to teach English
+Hello! My name is Rumbie, and I am a TEFL student preparing to teach English
 to non-native speakers online.
 
 This portfolio contains my lesson plans, teaching ideas, and learning
